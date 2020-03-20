@@ -1,2 +1,0 @@
-# daydayup
-学习
